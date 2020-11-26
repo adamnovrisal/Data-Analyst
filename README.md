@@ -1,1 +1,1 @@
-# hello guys, you can seeif you want. Hope you enjoy :)
+# hello guys, you can see if you want. Hope you enjoy :)
